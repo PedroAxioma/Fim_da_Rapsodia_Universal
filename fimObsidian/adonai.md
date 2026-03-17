@@ -1,2 +1,2 @@
-Sou dono de todo infinito
-E eu gostaria de compartilhá-lo com você
+Como imperador do Universo
+Eu gostaria de compartilhá-lo com você
