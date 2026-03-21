@@ -12,6 +12,3 @@ Existem vários outros planetas com essa mesma característica.
 Vários deles por intervenção dos próprios seres que os habitavam.
 Acho que eles ouviram a históriam do povo das auroras.
 E tentaram ser tão grandes quanto.
-
-Ou cada coisa seguindo o seu papel.
-
